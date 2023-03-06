@@ -12,7 +12,7 @@
 - Knowladge gaining worshops. I can teach design like UI, product design, concept development
 - 
 - 📫 How to reach me ...
-- ssidesh@gmail.com
+- ssidesh@outlook.com
 - insta @ssidesh
 
 <!---
